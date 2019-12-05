@@ -31,4 +31,4 @@ IT대학 코드페어 개최
 2019년 11월, IT대학 코드페어 운영진으로 참가하여
 대회 기획 및 운영을 담당하였습니다.
 
-![1574254314117-21](https://user-images.githubusercontent.com/45058359/70256230-79f32800-17cb-11ea-968f-ec009d99c443.jpg)
+![1574254314117-21](https://user-images.githubusercontent.com/45058359/70256330-a7d86c80-17cb-11ea-899b-b7f457723964.jpg)
